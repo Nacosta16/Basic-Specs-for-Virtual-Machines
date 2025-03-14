@@ -18,7 +18,7 @@
 My personal laptops specs are as follows [Dell Latitude 5521 Laptop](https://www.amazon.com/dp/B09QK3V2C4?ref=cm_sw_r_cso_em_apin_dp_M5GGTD00C4ZWCKNGFHPF&ref_=cm_sw_r_cso_em_apin_dp_M5GGTD00C4ZWCKNGFHPF&social_share=cm_sw_r_cso_em_apin_dp_M5GGTD00C4ZWCKNGFHPF&th=1) I got lucky and got it on sale! It has treated me well and has been more than reilable for almost a year now.
 
 
-Curious where I learned this information? I personally enjoy using a learning site called [Udemy.](https://www.udemy.com/?ranMID=39197&ranEAID=%2FjZHTpnCvx8&ranSiteID=_jZHTpnCvx8-pyN.JnMrZPAiS.OTZs3sOQ&LSNPUBID=%2FjZHTpnCvx8&utm_source=aff-campaign&utm_medium=udemyads) It has many cost effective deals with lots of information technology professionals such as Jason Dion (Who is actually a direct partner of CompTIA with DionTraining) and Andrew Raymald, one of the founders of the Technical Institute of America!  
+
 
 
 
